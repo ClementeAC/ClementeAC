@@ -1,6 +1,6 @@
 ### Hi there, I'm Clemente 👋
 
-## I'm an Computer Engineering Student, Developer, and English Teacher!!
+## I'm a Computer Engineering Student, Developer, and English Teacher!!
 
 - ⚡ I’m currently trying to learning everything 🤣
 
