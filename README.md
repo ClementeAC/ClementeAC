@@ -2,7 +2,7 @@
 
 ## I'm a Computer Engineering Student, Developer, and English Teacher!!
 
-- ⚡ I’m currently trying to learning everything 🤣
+- ⚡ I’m currently trying to learn everything 🤣
 
 ### Connect with me:
 
