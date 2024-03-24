@@ -2,7 +2,7 @@
 
 ## I'm a Computer Engineer, FullStack Developer with 3 Years of Working experience. I'll be adding my personal work soon!!
 
-- ⚡ I’m currently trying to learn everything 🤣
+- ⚡ I’m currently trying to learn flutter 
 
 ### Connect with me:
 
