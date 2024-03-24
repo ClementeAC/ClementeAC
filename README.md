@@ -1,6 +1,6 @@
 ### Hi there, I'm Clemente 👋
 
-## I'm a Computer Engineer, Developer and English Teacher!!
+## I'm a Computer Engineer, FullStack Developer with 3 Years of Working experience. I'll be adding my personal work soon!!
 
 - ⚡ I’m currently trying to learn everything 🤣
 
