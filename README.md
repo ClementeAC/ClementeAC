@@ -25,6 +25,5 @@
 <br />
 <br />
 
-[twitter]: https://twitter.com/cleeecli
 [instagram]: https://www.instagram.com/clemente.acd
 
